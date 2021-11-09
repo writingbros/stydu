@@ -1,1 +1,1 @@
-# stydu
+You should always communicate only with those who have achieved much more than you have. This will mean that you will subconsciously take an example from the people around you and follow their principles. And this is very important.
